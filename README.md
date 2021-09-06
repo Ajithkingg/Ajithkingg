@@ -3,6 +3,9 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
+Whatsapp : https://wa.me/message/RVWWTP3DFTU5C1
+Gmail    : ajithkingvip@gmail.com
+
 
 <!---
 Ajithkingg/Ajithkingg is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
